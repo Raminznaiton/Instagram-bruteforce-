@@ -24,6 +24,6 @@ I am not responsible for any of your actions
 
   
 
-For more information about this tool visit to my YouTube channel Harsh Ki Vani.
+
 
 ## Good Luck ramin
